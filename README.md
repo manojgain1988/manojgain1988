@@ -1,8 +1,7 @@
 
-![I am Web Designer & Developer.](https://github.com/settings/profile)
+![I am Web Designer & Developer.](https://www.linkedin.com/in/manojgain1988/)
 ### Hi there 👋, I'm Manoj Gain
 #### I am Web Designer & Developer.
-
 
 
 Hey !  I am  Manoj Gain as a web-design & Developer  since 3 yearsin this field. We love to learn new technology and cliends Satisfacation in my first priority.
